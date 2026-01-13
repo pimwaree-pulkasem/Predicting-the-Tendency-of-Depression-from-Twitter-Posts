@@ -88,7 +88,7 @@ These experiments contributed to the overall comparison and justification of the
 - Improved understanding of social media communication patterns
   
 ## Presentation
-- Google Drive: https://drive.google.com/file/d/1nxnddFqV4rAfXOuRf62AKU-wL4S19yYn/view?usp=drive_link
+- Google Drive: https://drive.google.com/file/d/1aO7PkCXpOKRlKzsfuq_Ecjh5p_B034y7/view?usp=drive_link
   
 ## Team Members
 - วริยาพร  
